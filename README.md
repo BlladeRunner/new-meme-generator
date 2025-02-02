@@ -1,1 +1,2 @@
-![meme_generator](https://github.com/user-attachments/assets/f604c2e1-141d-4091-85d7-b4e01e8defc9)
+
+![meme_generator](https://github.com/user-attachments/assets/25c30ff0-c0e9-4bf2-88d3-f682779fa7dd)
